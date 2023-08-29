@@ -9,7 +9,7 @@ A brief summary of your professional background, skills, and career goals. Tailo
 - Relevant Coursework: [List some relevant courses here]
 - Honors: [Any honors or awards]
 ## Professional Experience
-### [Gollob Morgan Peddy], [Tax Intern / Staff Tax Associate], [Tyler, TX], [April 2023] - [Current]
+### [Gollob Morgan Peddy], [Tax Intern / Staff Tax Associate], [Tyler, TX], January 2023 - April 2023 | April 2023] - Current
 - Became familiar with U.S. tax law through preparation of Form 1040, 1065, 1120, and 1120-S. 
 - Developed working relationships with many upper-level staff in order to cater to client’s situations and needs.
 - Identified technical issues, worked with closely with managers to resolve unique tax issues and produced organized working papers while doing so.
