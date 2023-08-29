@@ -6,8 +6,7 @@ A brief summary of your professional background, skills, and career goals. Tailo
 ## Education
 ### [University of Texas at Tyler], [Tyler, TX]
 **[Bachelor of Business Administration]**, [April 2023]
-- Relevant Coursework: [List some relevant courses here]
-- Honors: [Any honors or awards]
+
 ## Professional Experience
 ### [Gollob Morgan Peddy], [Tax Intern / Staff Tax Associate], [Tyler, TX], January 2023 - April 2023 | April 2023] - Current
 - Became familiar with U.S. tax law through preparation of Form 1040, 1065, 1120, and 1120-S. 
