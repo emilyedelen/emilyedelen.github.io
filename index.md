@@ -1,4 +1,4 @@
-# [Emily Edelen]
+# Emily Edelen
 [17717 FM 344] | | [Flint, TX 75762]  
 [903-263-4459] | [eedelen@patriots.uttyler.edu] | [www.linkedin.com/in/emilyeedelen]
 ## Summary
