@@ -23,5 +23,3 @@ A brief summary of your professional background, skills, and career goals. Tailo
 ## References
 Available upon request.
 
-![image](https://github.com/emilyedelen/emilyedelen.github.io/assets/142950691/365376af-2005-446a-8412-ed5ba55eb3bb)
-
