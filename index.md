@@ -1,6 +1,6 @@
 # Emily Edelen
-[17717 FM 344] | | [Flint, TX 75762]  
-[903-263-4459] | [eedelen@patriots.uttyler.edu] | [www.linkedin.com/in/emilyeedelen]
+17717 FM 344 | | Flint, TX 75762  
+903-263-4459 | [eedelen@patriots.uttyler.edu] | [www.linkedin.com/in/emilyeedelen]
 ## Summary
 A brief summary of your professional background, skills, and career goals. Tailor this section to the specific position you're applying for.
 ## Education
