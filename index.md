@@ -1,9 +1,9 @@
 # Emily Edelen
- eedelen@patriots.uttyler.edu | www.linkedin.com/in/emilyeedelen
+eedelen@patriots.uttyler.edu | www.linkedin.com/in/emilyeedelen
 ## Summary
 A brief summary of your professional background, skills, and career goals. Tailor this section to the specific position you're applying for.
 ## Education
-###University of Texas at Tyler, Tyler, TX
+University of Texas at Tyler, Tyler, TX
 **Bachelor of Business Administratio]**, April 2023
 
 ## Professional Experience
